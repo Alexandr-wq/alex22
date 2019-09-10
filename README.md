@@ -78,3 +78,4 @@
 
 
 
+![](//https://radugazvuka.ru/images/p9_bnulpwhaawm.jpg/150x100)

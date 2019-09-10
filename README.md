@@ -82,4 +82,3 @@
 ![kartinka](https://scontent-lhr3-1.cdninstagram.com/vp/29d3a4e697b5586b8fc0ce03e0333be8/5DC94FC6/t51.2885-15/e35/29095057_182756709172223_19836817557684224_n.jpg?_nc_ht=scontent-lhr3-1.cdninstagram.com&se=7&ig_cache_key=MTc0MTM5Nzg2MzAyOTgzNzk3MQ%3D%3D.2)
 
 
-

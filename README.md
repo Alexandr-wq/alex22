@@ -78,4 +78,4 @@
 
 
 
-![kartinka].(https://radugazvuka.ru/images/p9_bnulpwhaawm.jpg)
+![kartinka](https://radugazvuka.ru/images/p9_bnulpwhaawm.jpg)

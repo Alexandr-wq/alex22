@@ -80,3 +80,7 @@
 
 ![kartinka](https://radugazvuka.ru/images/p9_bnulpwhaawm.jpg)
 ![kartinka](https://scontent-lhr3-1.cdninstagram.com/vp/29d3a4e697b5586b8fc0ce03e0333be8/5DC94FC6/t51.2885-15/e35/29095057_182756709172223_19836817557684224_n.jpg?_nc_ht=scontent-lhr3-1.cdninstagram.com&se=7&ig_cache_key=MTc0MTM5Nzg2MzAyOTgzNzk3MQ%3D%3D.2)
+
+
+<a href="http://www.youtube.com/watch?feature=player_embedded&v=ID_ВИДЕОРОЛИКА_НА_YOUTUBE" target="_blank"><img src="http://img.youtube.com/vi/ID_ВИДЕОРОЛИКА_НА_YOUTUBE/0.jpg" 
+alt="ALT-ТЕКСТ ИЗОБРАЖЕНИЯ" width="240" height="180" border="10" /></a>
